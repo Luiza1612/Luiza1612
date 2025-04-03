@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Luiza
+- 👋 Hi, I’m @Luiza1612
 - 👀 I’m interested in Dising Visual
 - 🌱 I’m currently learning Programação na web
 - 💞️ I’m looking to collaborate on 
